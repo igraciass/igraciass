@@ -1,3 +1,12 @@
+# Hi, I'm Gracia 👋
+
+Curious introvert who enjoys learning new things and solving challenges.
+
+☕ Coffee-powered  
+🎸 Plays guitar when stressed  
+🧠 Always exploring new technologies  
+🤐 Prefers building over arguing
+
 ### <h2>🎉 My Achievements</h2>
 
 - 📜 **IEEE Journal Publication and Presenter**  
